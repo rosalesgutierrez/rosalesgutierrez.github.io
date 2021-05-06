@@ -4,4 +4,4 @@
 1. Spain
 2. The UK
 3. Perù
-## Because of this, I also had the opportunity to attend *The University of Geneva*. Here you can find more about this one of a kind university: [University of Geneva](https://www.unige.ch/).
+## I also had the opportunity to attend *The University of Geneva*. Here you can find more about this one of a kind university: [University of Geneva](https://www.unige.ch/).
